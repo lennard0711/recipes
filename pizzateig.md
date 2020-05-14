@@ -16,7 +16,7 @@
 4. 10min mit der Maschine kneten lassen oder 20min von Hand
 5. Etwas Olivenöl in eine frische Schüssel geben und den Teig reinlegen. Diesen einmal leicht mit dem Öl einreiben
 6. Den Teig mit einem feuchten Tuch bedeckt 2h wegstellen bei Zimmertemperatur
-7. Den Teig in 8 gleichgroße Bälle teilen
+7. Den Teig in 4-6 gleichgroße Bälle teilen
 8. Die Bälle mit etwas Öl einreiben
 9. Etwas Öl in Tupperdosen geben
 10. Die Bälle einzeln in Tupperdosen packen
