@@ -10,7 +10,7 @@
   - 06g > 12h ziehen
   - 08g > 06h ziehen
   - 10g > 02h ziehen
-- 20g Salz
+- <10g Salz
 - Olivenöl
 
 ## Zubereitung
